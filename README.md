@@ -1,1 +1,0 @@
-# Trabalho-do-dia-22-diw
